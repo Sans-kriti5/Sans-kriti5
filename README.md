@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sans-kriti5
 - 👀 I’m interested in designing, writing
 - 🌱 I’m currently learning bachelor in computer engineering
-- 💞️ 
+- 💞️ committed to codes and designs.
 - 📫 you can reach me through email: khtrsansh05@gmail.com
 - 😄 Pronouns: she
 
